@@ -1,0 +1,1 @@
+# dekopinda-nagan-raya
