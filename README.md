@@ -1,1 +1,1 @@
-# dekopinda-nagan-raya
+# dekopinda-karanganyar
